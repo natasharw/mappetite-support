@@ -2,7 +2,7 @@
 
 **Effective Date:** 14th September 2025
 
-Cooked This (“the App,” “we,” “our,” or “us”) respects your privacy. This Privacy Policy explains how information is collected, used, and shared when you use our iOS application.
+Mappetite (“the App,” “we,” “our,” or “us”) respects your privacy. This Privacy Policy explains how information is collected, used, and shared when you use our iOS application.
 
 ---
 
